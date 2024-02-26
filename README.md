@@ -1,4 +1,5 @@
-<img src="https://github.com/AlexYelisieiev/AlexYelisieiev/assets/62658287/1e163d86-b351-4e79-9712-d9bd7efaac7a" width=684px>
+<img src="https://github.com/AlexYelisieiev/AlexYelisieiev/assets/62658287/d0b9c36d-7938-4f30-8b35-1dcd1bab62d3" width=684px>
+
 <br><br>
 <img src="https://raw.githubusercontent.com/AlexYelisieiev/AlexYelisieiev/master/profile-summary-card-output/github_dark/0-profile-details.svg" width=684px>
 
