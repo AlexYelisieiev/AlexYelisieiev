@@ -1,4 +1,4 @@
-![console_bio](https://github.com/AlexYelisieiev/AlexYelisieiev/assets/62658287/afa2e4dd-c223-4f6c-a82f-e5d9b656ef79)
+![2024032422241-ezgif com-optimize](https://github.com/AlexYelisieiev/AlexYelisieiev/assets/62658287/91bd7658-e03f-4612-906f-5105601a277f)
 
 <img src="https://raw.githubusercontent.com/AlexYelisieiev/AlexYelisieiev/master/profile-summary-card-output/github_dark/0-profile-details.svg" width=684px>
 
