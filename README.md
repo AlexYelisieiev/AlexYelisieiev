@@ -1,5 +1,5 @@
 
-![2024032509313-ezgif com-optimize](https://github.com/AlexYelisieiev/AlexYelisieiev/assets/62658287/4f0611f9-2df1-4281-b7e7-afad61c11c38)
+![ezgif com-optimize](https://github.com/AlexYelisieiev/AlexYelisieiev/assets/62658287/a2fffffb-d4b1-48e6-956d-a841a72cc814)
 
 <img src="https://raw.githubusercontent.com/AlexYelisieiev/AlexYelisieiev/master/profile-summary-card-output/github_dark/0-profile-details.svg" width=684px>
 
