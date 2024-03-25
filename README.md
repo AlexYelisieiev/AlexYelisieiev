@@ -1,5 +1,5 @@
 
-<img src="https://github.com/AlexYelisieiev/AlexYelisieiev/assets/62658287/de186acc-9b2f-4b29-bba2-851046c53170">
+<img width="100%" src="https://github.com/AlexYelisieiev/AlexYelisieiev/assets/62658287/841e4b5e-1b91-4f51-9605-3276cb40948d">
 
 # Stats
 
